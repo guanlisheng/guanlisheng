@@ -2,7 +2,7 @@
 ## Simple programmer with the following experiences
 * Father of both children
 * Husband (2013 to now)
-* __OPEN TO HIRE__ (Jul 2023 to now)
+* __OPEN TO WORK__ (Jul 2023 to now)
 * Architect at [NewsBreak](https://www.linkedin.com/in/guanlisheng) (Sep 2021 to Jul 2023)
 * Key engineer for product [Money Manager Ex](http://www.moneymanagerex.org/) (2012 to now)
 * Software Engineer at [FreeWheel](https://www.linkedin.com/in/guanlisheng) (Jul 2008 to Sep 2021)
